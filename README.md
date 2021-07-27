@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @warkitty
+- 👀 I’m interested in Tech, Gaming, Animation and AR&VR
+- 🌱 I’m currently learning SLQ
+- 💞️ I’m looking to collaborate on SQL
+- 📫 How to reach me on instagram at annemelaas
